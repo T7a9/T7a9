@@ -1,1 +1,1 @@
-99% lurker, 1% doer 
+100% lurker
