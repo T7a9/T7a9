@@ -1,1 +1,2 @@
-100% lurker
+i hate micro€oft
+moved to forgejo
